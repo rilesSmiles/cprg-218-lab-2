@@ -54,8 +54,8 @@ Ingredients:
 - 1 pound spaghetti
 - 1 pound ground beef
 - 1/2 cup bread crumbs
-- 1/4 cup cashew milk
-- 1/4 cup grated Parmesan cheese
+- 1/4 cup CASHEW milk
+- 1/4 cup nutritional yeast
 - 1 egg
 - 5 cloves garlic, minced
 - Salt and pepper to taste
@@ -99,7 +99,7 @@ Ingredients:
 - 1 tsp salt
 - 1 cup unsalted butter, softened
 - 3/4 cup white sugar
-- 3/4 cup brown sugar
+- 4 cup cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
 - 2 cups semisweet chocolate chips
