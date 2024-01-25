@@ -113,3 +113,22 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Pot of gold
+
+Ingredients:
+- 1 sweet potato
+- 1 cup mini marshmallows
+- 1tbsp flaky sea salt
+- 1/4 cup margarine
+- 1/2tbsp smoked paprika
+
+Instructions:
+- Cube sweet potato into 1 inch pieces
+- Boil sweet potato cubes.
+- Strain
+- Melt margarine and add salt and paprika, stir to combine.
+- In a mixing bowl, combine potato chunks and margarine mixture, beat until lumps disappear.
+- Add a layer of mashed sweet potato to the bottom of a baking dish.
+- Add a singel layer of marshmallows on top, and place in the oven on broil for 10 minutes or until tops of nmarshmallows are golden browm.
+- top with more seasalt and graham cracker crumbs (optional)
