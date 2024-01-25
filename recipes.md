@@ -47,16 +47,17 @@ Instructions:
 5. Top each toasted baguette slice with the tomato mixture.
 
 ## Entrees
+
 ### Spaghetti and Meatballs
 
 Ingredients:
 - 1 pound spaghetti
 - 1 pound ground beef
 - 1/2 cup bread crumbs
-- 1/4 cup milk
-- 1/4 cup grated Parmesan cheese
+- 1/4 cup CASHEW milk
+- 1/4 cup nutritional yeast
 - 1 egg
-- 2 cloves garlic, minced
+- 5 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
 
@@ -79,6 +80,7 @@ Ingredients:
 - 4 hamburger buns
 - Lettuce
 - Tomato
+- three hard boiled green eggs.
 - Mayonnaise
 
 Instructions:
@@ -98,7 +100,7 @@ Ingredients:
 - 1 tsp salt
 - 1 cup unsalted butter, softened
 - 3/4 cup white sugar
-- 3/4 cup brown sugar
+- 4 cup cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
 - 2 cups semisweet chocolate chips
